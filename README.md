@@ -1,0 +1,2 @@
+# GloriousBot
+Private Info
